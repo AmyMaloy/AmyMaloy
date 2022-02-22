@@ -16,7 +16,7 @@
 
 - ⚡ Fun fact **I enjoy coding**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.linkedin.com/in/amy-barsdorf-7a5630193/</h3>
 <p align="left">
 </p>
 
